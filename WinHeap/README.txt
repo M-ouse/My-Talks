@@ -1,1 +1,1 @@
-Creadit to Angelboy (https://github.com/scwuaptx), added some my personal insights.
+Creadit to Angelboy (https://github.com/scwuaptx), added some my insights.
